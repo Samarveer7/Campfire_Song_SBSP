@@ -5,9 +5,9 @@ Our C-A-M-P-F-I-R-E S-O-N-G song
 And if you don't think that we can sing it faster then you're wrong
 But it'll help if you just sing along
 Bum, bum, buuum...
-c-a-m-p-f-i-r-e-s-o-n-g song
-c-a-m-p-f-i-r-e-s-o-n-g song
+C-A-M-P-F-I-R-E-S-O-N-G song
+C-A-M-P-F-I-R-E-S-O-N-G song
 and if you dont think that we can sing it faster then you're wrong
 But it'll help if you just sing along
-c-a-m-p-f-i-r-e-s-o-n-g song
+C-A-M-P-F-I-R-E-S-O-N-G song
 patrick...
